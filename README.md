@@ -73,7 +73,7 @@ Bir kış günü, kar çok yağmış ve Tavşan'ın yiyeceği kalmamış. Tilki,
 
 Bahar geldiğinde, Tilki yaralanmış. Tavşan, Tilki'yi bulmuş ve ona şifalı otlar getirmiş. Her gün Tilki'nin yanında kalmış, ona bakım yapmış.
 
-Bir gün, avcılar ormana gelmişler. Tilki, Tavşan'ı görmüş ve "Çabuk, benim in'ime gel!" demiş. Tavşan, Tilki'nin inine saklanmış ve avcılar geçip gitmişler.
+Bir gün, avcılar ormana gelmişler. Tilki, Tavşan'ı görmüş ve "Çabuk, benim inime gel!" demiş. Tavşan, Tilki'nin inine saklanmış ve avcılar geçip gitmişler.
 
 İki arkadaş birbirine sarılmış. "Gerçek arkadaşlık, birbirimize ihtiyaç duyduğumuzda yanımızda olmaktır" demişler.
 
